@@ -132,5 +132,21 @@ __쉬운 서술형__
 [영상 보기](https://play.mbus.tv/관계-핵심반복,형성평가_한장수학3(하).mp4https://play.mbus.tv/17663919e944b074)
 
 ## 5교시 - 자율
+### 바로가기
+[기가 바로가기](https://rang.edunet.net/class/G000364114/hmwkppList.do?hmwkSeq=739880)
+### 문제
+```
+다음의 영상을 시청하고 느낀점과 자신의 꿈과 진로는 무엇인지 써보세요.
+```
+### 참고 자료
+[![Youtube](http://img.youtube.com/vi/CYmyp77d1BU/0.jpg)](https://www.youtube.com/embed/CYmyp77d1BU "Youtube")
 
 ## 6교시 - 자율
+### 바로가기
+[기가 바로가기](https://rang.edunet.net/class/G000364114/hmwkppList.do?hmwkSeq=739883)
+### 문제
+```
+다음의 영상을 시청하고 느낀점을 작성하세요.
+```
+### 참고 자료
+[![Youtube](http://img.youtube.com/vi/2LKwxYMLxDE/0.jpg)](https://www.youtube.com/embed/2LKwxYMLxDE "Youtube")
